@@ -1,0 +1,2 @@
+# shuxrat
+Jumayev
